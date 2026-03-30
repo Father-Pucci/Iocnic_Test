@@ -1,1 +1,0 @@
-# it35a-mobile
